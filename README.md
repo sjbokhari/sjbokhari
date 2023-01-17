@@ -1,3 +1,3 @@
 - Hi, I’m @sjbokhari
-- You Can Reach me at sj@bokhari.de
+- You Can Reach me at shehryar@bokhari.de
 
